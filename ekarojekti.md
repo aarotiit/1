@@ -19,4 +19,4 @@ Perjantaina 7.5 klo 12 - **Mäntsälän jäähallissa**
 Valmentaja Heikki - 0440983902  
 Huoltomies Pekka - 0507890988
 
-moro
+lol
